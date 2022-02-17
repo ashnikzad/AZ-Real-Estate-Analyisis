@@ -21,8 +21,11 @@ Question 2: Identification of Low Risk, High Yield (Best Investment) Property ca
 Question 3: Is the housing market in az healthy and sustainable? 
 
 Our answers to each question are below, with the corresponding number
+
 Answer 1: Glendale, Avondale, Cave Creek.
+
 Answer 2: We found multiple low risk high yield investments in many areas, grouped by different "value buckets".
+
 Answer 3: Yes. We have high diversity, low unemployment, and a growing rate of home ownership.
 
 CREDITS
